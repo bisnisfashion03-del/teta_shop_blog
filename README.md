@@ -1,0 +1,1 @@
+# teta_shop_blog
